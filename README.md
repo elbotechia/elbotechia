@@ -6,5 +6,3 @@
 - 🤔 Eu preciso de ajuda com o software **Ancys Fluid**
 - 📫 Se precisar escreva em <a href="mailto:elbotechia@gmail.com" target="_blank">elbotechia@gmail.com</a>
 - 😄 Pronouns: **HIM**
-- ⚡ Fun fact: SHE DONT GIVE A FOO! 😂
-  
